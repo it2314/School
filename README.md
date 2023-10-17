@@ -1,4 +1,7 @@
 # School
 
 im so silly :333
-dadasd
+
+please kill me
+
+mommy??? owo
